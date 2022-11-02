@@ -1,1 +1,1 @@
-(lol)[https://t.me/dumbhael]
+[lol](https://t.me/dumbhael)
