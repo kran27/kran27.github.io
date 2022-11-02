@@ -1,1 +1,1 @@
-# kran27.github.io
+(lol)[https://t.me/dumbhael]
